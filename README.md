@@ -34,5 +34,6 @@
 
 9. Dan sambungkan ke HP atau perangkat kalian
 
-![Uploading Tampilan Akhir #9.png…]()
+![Tampilan Akhir #9](https://github.com/zakiramadan/accesspoint/assets/126186033/be57d63b-a9ed-4ae0-902f-e4b722fb2287)
+
 

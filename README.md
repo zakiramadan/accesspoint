@@ -32,4 +32,7 @@
    
 ![Congratulations #8](https://github.com/zakiramadan/accesspoint/assets/126186033/9d566169-22f5-422b-af36-5b443d9cb5c8)
 
+9. Dan sambungkan ke HP atau perangkat kalian
+
+![Uploading Tampilan Akhir #9.png…]()
 
